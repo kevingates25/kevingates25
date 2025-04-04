@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kevingates25
+- 👋 Hi, iamkevingates
 - 👀 I’m interested in ...kk
 - 🌱 I’m currently learning ...how to connect with my souldmate
 - 💞️ I’m looking to collaborate on ...my music
